@@ -1,1 +1,2 @@
-# Defina_Jurnal05
+Defina Tri Salsabila
+607062300126
